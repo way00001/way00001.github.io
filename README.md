@@ -1,0 +1,1 @@
+# way00001.github.io
